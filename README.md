@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @LightWolf14
+- 👀 I’m interested in Python programming
+- 🌱 I’m currently learning Object-Oriented Programming with Python
+- 💞️ I’m looking to collaborate on nothing...you can't trust me with a project righ' now!
+- 📫 How to reach me : Umm...you can't right now...
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I am actually only 12 years old!!
